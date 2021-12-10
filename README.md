@@ -3,4 +3,4 @@
 🎓 estudando Analise e desenvolvimento de sistemas 
 🎓 Estudando Javascript e Python
 📧 Contate-me no email: anapaula.itu.sp@hotmail.com
-👩Pronoums: Ela/dela
+👩Pronouns: Ela/dela
